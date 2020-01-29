@@ -1,4 +1,5 @@
+Some of my favorite things are
 - my dog
-- music
+- playing guitar
 - video games
 - cooking food
